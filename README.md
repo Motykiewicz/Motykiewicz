@@ -22,7 +22,7 @@
 
 🔗LinkedIn: [linkedin.com/in/nathaniel-motykiewicz-pion](https://www.linkedin.com/in/nathaniel-motykiewicz-pion/) 
 
-👾GitHub: [@Motykiewicz](https://github.com/Motykiewicz)
+
 
 <!--
 
